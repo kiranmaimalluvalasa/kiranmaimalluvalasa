@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Informatica Tools, Azure Devops**
 
-- 📫 How to reach me **kiranmaimalluvalasa@gmail.com**
+- 📫 How to reach me **kiranmaimalluvalasa2511@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
